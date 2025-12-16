@@ -1,16 +1,21 @@
-## Hi there 👋
+![image_alt](https://github.com/Mequott/Mequott/blob/001fc580037461e82e08df2fc3334f88bffa0055/lv_0_20251103075649.gif)
 
-<!--
-**FinnWilikers/FinnWilikers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+. ㅤ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
+　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　                         𓈒    🎣    ȶɛɖ¹ ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ɛɨʀʟʏֆ²    𝅄     🦐     ۪   ݁   𓈒　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦ 
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤ ۪      𝅄     ꒰    ꒱    ۪   ݁  Between Your Band and the Other Band - Tigers Jaw ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• **1:29**    ݁   ۪    ꥟ 
+
+
+ 　　　　 ˚　.˚　　　　　INFP-T
+I'm quite a shy person And I rarely int first! (* ´ ﹃｀*)  　　　　 ˚　.˚　　　　　
+
+
+Last updated November 5, 2025
+
+
+- contacting ex friends is not worth my time so consider this as my **"No I will not int w any ppl I've already lost"**, I won't do anything if I receive news of about me 'contacting' them bc yk I ain't got no time do do allat, it's as simple as that
+
+
+![image alt](https://github.com/Mequott/Mequott/blob/58e62c987ac2220c7cf5d8541018ed09654ddfe9/lv_0_20251103075803.gif) 
+
