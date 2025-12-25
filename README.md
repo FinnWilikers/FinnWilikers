@@ -12,7 +12,10 @@
 I'm quite a shy person And I rarely int first! (* ´ ﹃｀*)  　　　　 ˚　.˚　　　　　
 
 
-Last updated November 5, 2025
+Last updated December 25, 2025
+
+
+Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
 
 
 - contacting ex friends is not worth my time so consider this as my **"No I will not int w any ppl I've already lost"**, I won't do anything if I receive news of about me 'contacting' them bc yk I ain't got no time do do allat, it's as simple as that
