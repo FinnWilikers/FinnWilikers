@@ -14,6 +14,7 @@ I'm quite a shy person And I rarely int first! (* ´ ﹃｀*)  　　　　 ˚
 
 Last updated December 25, 2025
 
+I love my boyfriend, he makes me feel genuinely happy 
 
 Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
 
