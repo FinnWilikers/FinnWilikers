@@ -14,6 +14,8 @@ I'm quite a shy person And I rarely int first! (* ´ ﹃｀*)  　　　　 ˚
 
 Last updated January 11, 2026
 
+I only go online when a friend tells me to hop on
+
 I love my boyfriend, he makes me feel genuinely happy 
 
 Awesome people!!  
