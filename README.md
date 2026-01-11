@@ -16,7 +16,9 @@ Last updated January 11, 2026
 
 I love my boyfriend, he makes me feel genuinely happy 
 
-Awesome people!!   Cyrus<3, Clyde, Mitsu, Koda, Kyou, Fush, Seven, Zyair, Saw, Elv, Silver, Aple, Kelvi, Vuz, Daph, Skippy, Amaris, Avery, Nort(special oomf on tt) , havu (special oomf on twt and tt) 
+Awesome people!!  
+
+Cyrus<3, Clyde, Mitsu, Koda, Kyou, Fush, Seven, Zyair, Saw, Elv, Silver, Aple, Kelvi, Vuz, Daph, Skippy, Amaris, Avery, Nort(special oomf on tt) , havu (special oomf on twt and tt) 
 
 
 Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
