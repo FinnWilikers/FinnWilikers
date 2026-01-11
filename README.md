@@ -12,15 +12,14 @@
 I'm quite a shy person And I rarely int first! (* ´ ﹃｀*)  　　　　 ˚　.˚　　　　　
 
 
-Last updated December 25, 2025
+Last updated January 11, 2026
 
 I love my boyfriend, he makes me feel genuinely happy 
 
+Awesome people!!   Cyrus<3, Clyde, Mitsu, Koda, Kyou, Fush, Seven, Zyair, Saw, Elv, Silver, Aple, Kelvi, Vuz, Daph, Skippy, Amaris, Avery, Nort(special oomf on tt) , havu (special oomf on twt and tt) 
+
+
 Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
-
-
-- contacting ex friends is not worth my time so consider this as my **"No I will not int w any ppl I've already lost"**, I won't do anything if I receive news of about me 'contacting' them bc yk I ain't got no time do do allat, it's as simple as that
-
 
 ![image alt](https://github.com/Mequott/Mequott/blob/58e62c987ac2220c7cf5d8541018ed09654ddfe9/lv_0_20251103075803.gif) 
 
