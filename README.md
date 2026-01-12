@@ -24,10 +24,5 @@ Cyrus<3, Clyde, Mitsu, Koda, Kyou, Fush, Seven, Zyair, Saw, Elv, Silver, Aple, K
 
 Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
 
-Twt - circ0s
-
-Hi havu
-![image alt](https://github.com/FinnWilikers/FinnWilikers/blob/bf5a9378cae5d545be239f29891530e076617e26/Screenshot_20260112_050813_com_twitter_android_TweetDetailActivity_edit_806908848850207.jpg) 
-
 ![image alt](https://github.com/Mequott/Mequott/blob/58e62c987ac2220c7cf5d8541018ed09654ddfe9/lv_0_20251103075803.gif) 
 
