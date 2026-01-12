@@ -14,7 +14,7 @@ I'm quite a shy person And I rarely int first! (* ´ ﹃｀*)  　　　　 ˚
 
 Last updated January 11, 2026
 
-I only go online when a friend tells me to hop on
+I only go online when a friend tells me to hop on pt, pretty rare since we mostly play smth else
 
 I love my boyfriend, he makes me feel genuinely happy 
 
@@ -23,6 +23,8 @@ Cyrus<3, Clyde, Mitsu, Koda, Kyou, Fush, Seven, Zyair, Saw, Elv, Silver, Aple, K
 
 
 Too lazy to style and change my github profile! I don't really check my github much anyway! "( – ⌓ – )
+
+Twt - circ0s
 
 Hi havu
 ![image alt](https://github.com/FinnWilikers/FinnWilikers/blob/bf5a9378cae5d545be239f29891530e076617e26/Screenshot_20260112_050813_com_twitter_android_TweetDetailActivity_edit_806908848850207.jpg) 
